@@ -1,2 +1,2 @@
-# cambio-clim-tico
+# cambio-climático
 la verdad sobre el cambio climático
